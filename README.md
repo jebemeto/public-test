@@ -1,3 +1,9 @@
 # public-test
 
 Nowiutkie zmiany
+Changes
+Idzie Grześ przez wieś
+worek piasku niesie
+a przez dziurkę
+piasek ciurkiem
+sypie się za Grzesiem
