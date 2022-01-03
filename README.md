@@ -7,3 +7,5 @@ worek piasku niesie
 a przez dziurkę
 piasek ciurkiem
 sypie się za Grzesiem
+
+Jeszcze nowsze zmiany
